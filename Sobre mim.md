@@ -12,9 +12,10 @@ Apreciador da Arte. Escrevo sobre a 7ª no [Letterboxd](https://boxd.it/bgsVh)
 ![GIF animado](output.gif)
 
 **Álbuns favoritos:**  
-- A Tribe Called Quest - *The Low End Theory* 
+- Neutral Milk Hotel - *In the Aeroplane Over the Sea*
+- A Tribe Called Quest - *The Low End Theory*
 - Godspeed You! Black Emperor - *Lift Your Skinny Fists Like Antennas to Heaven* / F♯ A♯ ∞ (ambas versoes)
-- (E quase todos do Kanye West)
+- (*E quase todos do Kanye West*)
 
 **Gêneros favoritos:**  
 hiphop / jazz rap  
